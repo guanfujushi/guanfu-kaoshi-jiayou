@@ -4,6 +4,8 @@
 
 **作者：观复居士 ·商务合作：13148728713；微信号：guanfujs**
 
+[![SkillHub](https://img.shields.io/badge/下载-SkillHub-orange)](https://www.skillhub.cn/skills/guanfu-kaoshi-jiayou)
+
 **English**: Exam-season encouragement copy and parent scripts across four time windows — student cheer messages, parent phrasebooks with a taboo list and replacements, teacher notes, banner and social materials, and three post-result scripts.
 
 ---
